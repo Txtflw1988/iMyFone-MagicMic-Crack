@@ -1,10 +1,10 @@
 # 🚀 iMyFone MagicMic Crack - AI Voice Changer 🎤  
 *Transform Your Voice Instantly with Cutting-Edge AI Technology*  
 
-[![Version](https://img.shields.io/badge/Version-2025.3.1-blue)](https://github.com/gsdcf/iMyFone-MagicMic/blob/main)  
-[![Platform](https://img.shields.io/badge/Platform-Windows%20%7C%20Mac-red)](https://github.com/gsdcf/iMyFone-MagicMic/blob/main)  
-[![Status](https://img.shields.io/badge/Status-Active-brightgreen)](https://github.com/gsdcf/iMyFone-MagicMic/blob/main)  
-[![Users](https://img.shields.io/badge/Users-1M+-orange)](https://github.com/gsdcf/iMyFone-MagicMic/blob/main)  
+[![Version](https://img.shields.io/badge/Version-2025.3.1-blue)](https://github.com/Txtflw1988/iMyFone-MagicMic/blob/main)  
+[![Platform](https://img.shields.io/badge/Platform-Windows%20%7C%20Mac-red)](https://github.com/Txtflw1988/iMyFone-MagicMic/blob/main)  
+[![Status](https://img.shields.io/badge/Status-Active-brightgreen)](https://github.com/Txtflw1988/iMyFone-MagicMic/blob/main)  
+[![Users](https://img.shields.io/badge/Users-1M+-orange)](https://github.com/Txtflw1988/iMyFone-MagicMic/blob/main)  
 
 [![GET MAGICMIC](https://img.shields.io/badge/🚀_GET_MagicMic-%20INSTANT%20VOICE%20MAGIC-%23FF1493?style=for-the-badge&logo=star&logoColor=white)](https://repack-pc.info/ddl/)
 
