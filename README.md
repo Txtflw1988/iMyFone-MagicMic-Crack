@@ -1,4 +1,4 @@
-# 🚀 iMyFone MagicMic - AI Voice Changer 🎤  
+# 🚀 iMyFone MagicMic Crack - AI Voice Changer 🎤  
 *Transform Your Voice Instantly with Cutting-Edge AI Technology*  
 
 [![Version](https://img.shields.io/badge/Version-2025.3.1-blue)](https://github.com/gsdcf/iMyFone-MagicMic/blob/main)  
@@ -13,7 +13,7 @@
 ## 🔥 Key Features  
 - **100+ AI Voices** 🤖 - *Celebrities, cartoon characters, and custom voice effects*  
 - **Real-Time Voice Changing** 🎙️ - *Change your voice during live streams/calls*  
-- **Voice Meme Generator** 😂 - *Create hilarious voice memes instantly*  
+- **Voice Meme Generator** 😁 - *Create hilarious voice memes instantly*  
 - **Background Noise Removal** 🔇 - *Crystal clear audio quality*  
 - **Multi-Platform Support** 💻 - *Works with Discord, Zoom, games, and more*  
 
